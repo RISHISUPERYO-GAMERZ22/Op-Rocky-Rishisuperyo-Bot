@@ -12,4 +12,4 @@ I need a small tem for my Rishisuperyo Gamerz bot 😎😎
 My intro:-https://telegra.ph/file/a4f086527a50064157886.mp4
 
 U can pm me in telegram:-https//:t.me/Rishisuperyo
-I know u read a lot , thanks for reading 😂
+I know u read a lol , thanks for reading 😂
